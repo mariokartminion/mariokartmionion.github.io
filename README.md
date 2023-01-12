@@ -1,2 +1,2 @@
-# mariokartminonion.github.io
+# mariokartminion.github.io
 Mia Franchesca F. Arquillo
